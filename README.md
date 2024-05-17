@@ -1,4 +1,6 @@
-- 👋 Hi, I’m @maisiecowling
+ed]
+
+HELLO JAM- 👋 Hi, I’m @maisiecowling
 - 👀 I’m interested in films + books
 - 🌱 I’m currently learning computer science, english language and criminology as my a-levels
 - 💞️ I’m looking to collaborate on nothing
