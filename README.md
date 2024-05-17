@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me you can't
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: I consume excessive amounts of media everyday
+- ⚡ Fun fact: I consume excessive amounts of media everyday she is the best
 
 <!---
 maisiecowling/maisiecowling is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
