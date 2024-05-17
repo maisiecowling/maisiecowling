@@ -2,7 +2,7 @@
 - 👀 I’m interested in films + books
 - 🌱 I’m currently learning computer science, english language and criminology as my a-levels
 - 💞️ I’m looking to collaborate on nothing
-- 📫 How to reach me N/A
+- 📫 How to reach me you can't
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: I consume excessive amounts of media everyday
 
